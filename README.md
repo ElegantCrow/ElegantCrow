@@ -11,7 +11,8 @@
 
 - 💞️ I’m looking to collaborate on ...
         
-        Mostly 3D projects, if you like PSX, low poly or retro modeling styles I would be glad to collaborate!
+        Mostly 3D projects, if you like PSX, 
+        low poly or retro modeling styles I would be glad to collaborate!
         
 - 📫 How to reach me ...
 
