@@ -16,11 +16,11 @@
         
 - 📫 How to reach me ...
 
-        Instagram: https://www.instagram.com/elegantcrowcg/
-        Itch.io  : https://elegantcrow.itch.io/
-        Reddit   : https://www.reddit.com/user/elegantcrowcg
-        Twitter  : https://twitter.com/elegantcrowcg
-        YouTube  : https://www.youtube.com/channel/UCtyN8fiOVNPa915lMFG5x0Q
+        Feel free to contact me using one of the links below or you can use my Itch.io page or Twitter profile :D
+
+                Instagram: https://www.instagram.com/elegantcrowcg/
+                Reddit   : https://www.reddit.com/user/elegantcrowcg
+                YouTube  : https://www.youtube.com/channel/UCtyN8fiOVNPa915lMFG5x0Q
 
         Also if you a like what I do consider donating and helping me out!
         https://ko-fi.com/elegantcrow
