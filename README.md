@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ElegantCrow!
 - 👀 I’m interested in ...
 
-        3D Modeling, Graphic Design and Game Design;
+        3D Modeling, Graphic Design and Game Design
 
 - 🌱 I’m currently learning ...
 
