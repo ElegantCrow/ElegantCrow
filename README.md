@@ -23,7 +23,7 @@
                 YouTube  : https://www.youtube.com/channel/UCtyN8fiOVNPa915lMFG5x0Q
 
         Also if you a like what I do consider donating and helping me out!
-        https://ko-fi.com/elegantcrow
+        https://www.buymeacoffee.com/elegantcrowcg
         
         You can also tip me BAT if you are a Brave user ;)
 
